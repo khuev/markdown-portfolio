@@ -1,0 +1,1 @@
+![at times i wonder how it all comes together](https://scontent-lax3-2.xx.fbcdn.net/v/t1.6435-9/50089374_2006461082723255_4491958973213179904_n.jpg?_nc_cat=111&ccb=1-3&_nc_sid=174925&_nc_ohc=e_q9IID2-nIAX9dPi9w&_nc_ht=scontent-lax3-2.xx&oh=586496ff667e7b35633000b5b89cfd57&oe=60C711BC)
