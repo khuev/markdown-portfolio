@@ -1,1 +1,3 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+I am a _good speaker_, even if it terrifies me.
+
+I am a *powerful writer*, a *communicator who synthesizes different worlds together in the pursuit of understanding.*
